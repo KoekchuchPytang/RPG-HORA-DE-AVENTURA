@@ -12,31 +12,23 @@ Uma mega empresa multinacional trilionária da época da guerra de cogumelos est
 * As pessoas que começaram a trabalhar pra corporação ou consomem os produtos deles começam a agir de maneira esquisita, alguns até msm somem
 * Algum amigo/a da Ning(personagem da Isa) some e ela começa uma investigação pra achar ele/a
 
-### Detalhes:
-Possíveis espécies:
-Vampiros (mais provável), Lobisomem abraçadores ou antigos zumbis
-
 ### Método de escravização:
 Mordida, um ritual ou item que amaldiçoa, contratação, aperto de mão forte, trato fechado, vírus, abraço
 
 ### Produtos/ideias vendido(a)s:
 Mega protetor solar, roupa anti UV, alho artificial ou coisas relacionadas a vampiros, ternos e coisas relacionadas a homem sigma de negocios, um jeito de 
 
-### Tava pensando sobre:
-Zumbis, que transformam as pessoas através de algum vírus / aqueles lobisomens q abraçam e transformam outras pessoas em lobisomens abraçadores, só q com alguma alteração genética feita artificialmente por cientistas ou sla / vampiros de uma antiga civilização no underground, q usaram da maldição pra resistirem a guerra cogumelo, e agr tão transformando outras pessoas em vampiros
 
-Acho que oq eles vendem ou oferecem não é TÃO importante, mas eu queria algo q fosse ou engraçado/divertido, ou tenha um plot interessante
+### Vladmir Lucrare, Vilão Ooodial :
+Atualmente minha ideia é o seguinte: O vilão será um **vampiro** que veio de um outro continente chamado **"Protocólia LTDA"**, ele é o filho de um falecido CEO, que morreu em circunstancias estranhas (ele q matou). Após ele tomar o cargo da empresa(como chamam continente), começou a ficar um caos, o que fez o vilão se esforçar para chegar no patamar do pai e reestabilizar a ordem. Após um tempo ele conseguiu e decidiu fazer uma **expedição** para expandir o "mercado". Com isso ele **vai pra Ooo** através de uma embarcação.
 
-### Vilão Ooodial:
-Atualmente minha ideia é o seguinte: O vilão será um vampiro que veio de um outro continente chamado "Protocólia LTDA", ele é o filho de um falecido CEO, que morreu em circunstancias estranhas (ele q matou). Após ele tomar o cargo a empresa(como chamam continente) começou a ficar um caos, o que fez o vilão se esforçar para chegar no patamar do pai e reestabilizar a ordem. Após um tempo ele conseguiu e decidiu fazer uma expedição para expandir o "mercado". Com isso ele vai pra Ooo através de uma embarcação.
+**Backstory do cara**: Ele era **filho de um CEO** que trabalhava pra caramba, sua mãe tinha ido embora e ele nunca realmente entendeu o pq pois seu pai nunca tirava tempo para conversar com ele. Ele se esforçou para entrar na empresa do pai e se tornar um funcionário valioso o suficiente para ser notado por ele. A empresa era realmente muito grande, e tinha feito várias parcerias com outras mega corporações e orgãos públicos de diversos países. Após alguns anos a guerra dos cogumelos estava mostrando seus dentes e seu pai começou a fazer negócios estranhos, contratar ciêntistas, construir bunkers, estocar comida, comprar terreno que não faz sentido. Até que depois de um tempo ele e os funcionários de maior patente foram avisados dos planos do CEO. Ele os disse que tinha entrado em parceria com uma **mega empresa trilionária**, e ela o tinha passado um plano para conseguir garantir a sobrevivencia dele e de seus funcionários, além de soberania sobre o mercado. Ele foi bem vago sobre o assunto, mas basicamente eles **aplicariam uma droga em seus funcionários/contrato mágico** que os tornariam imortais, porém não poderiam mais ver a luz do sol, e por isso deveriam trabalhar de manhã e de tarde dentro da empresa, e apenas sairem após o por do sol. Com isso o CEO começou a criar uma **mentalidade quase religiosa** com seus funcionários, para que as informações não vazassem e ninguém tentasse sair da empresa. Com isso os funcionários basicamente receberam um **brainwashing** e eram impedidos de interagir com pessoas que tentassem falar mal ou disuadir eles de continuar na empresa. Com isso os funcionários, e o vilão ficaram cada vez mais **antissociais e miseráveis**, mas a politica de vida deles os davam proposito.
 
-Backstory do cara: Ele era filho de um CEO que trabalhava pra caramba, sua mãe tinha ido embora e ele nunca realmente entendeu o pq pois seu pai nunca tirava tempo para conversar com ele. Ele se esforçou para entrar na empresa do pai e se tornar um funcionário valioso o suficiente para ser notado por ele. A empresa era realmente muito grande, e tinha feito várias parcerias com outras mega corporações e orgãos públicos de diversos países. Após alguns anos a guerra de Ooo estava mostrando seus dentes e seu pai começou a fazer negócios estranhos, contratar ciêntistas, construir bunkers, estocar comida, comprar terreno que não faz sentido. Até que depois de um tempo ele e os funcionários de maior patente foram avisados dos planos do CEO. Ele os disse que tinha entrado em parceria com uma mega empresa trilionária, e ela o tinha passado um plano para conseguir garantir a sobrevivencia dele e de seus funcionários, além de soberania sobre o mercado. Ele foi bem vago sobre o assunto, mas basicamente eles aplicariam uma droga em seus funcionários que os tornariam imortais, porém não poderiam mais ver a luz do sol, e por isso deveriam trabalhar a manhã e tarde dentro da empresa, e apenas sairem após o por do sol. Com isso o CEO começou a criar uma mentalidade quase religiosa com seus funcionários, para que as informações não vazassem e ninguém tentasse sair da empresa. Com isso os funcionários basicamente receberam um brainwashing e eram impedidos de interagir com pessoas que tentassem falar mal ou disuadir eles de continuar na empresa. Com isso os funcionários, e o vilão ficaram cada vez mais antisociais e miseráveis, mas a politica de vida deles os davam proposito.
+**Após as bombas cairem**: Quando as bombas cairam todos os muitos funcionários da empresa estavam em bunkers e tinham se tornado vampiros, e algumas poucas centenas de anos depois eles sairam dos bunkers e repovoaram o seu continente desolado.
 
-Após as bombas cairem: Quando as bombas cairam todos os muitos funcionários da empresa estavam em bunkers e tinham se tornado vampiros, e algumas poucas centenas de anos depois eles sairam dos bunkers e repovoaram o seu continente desolado.
+**Motivação do assassinato do pai**: O vilão estava recentido por ter vivido uma vida inteira na sombra do pai que não lhe dava atenção, de nunca ter vivido a vida de verdade, e agora estar destinado a viver uma vida eterna de trabalho. Porém após tudo virar um caos ele começa a acreditar que o pai estava certo e que esse estilo de vida realmente é necessário para a existencia de uma sociedade, o que o fez se esforçar para tomar o manto do pai, mas apesar disso no fundo do seu coração ele ainda odeia tudo isso e preferia ter ido junto com as bombas.
 
-Motivação do assassinato do pai: O vilão estava recentido por ter vivido uma vida inteira na sombra do pai que não lhe dava atenção, de nunca ter vivido a vida de verdade, e agora estar destinado a viver uma vida eterna de trabalho. Porém após tudo virar um caos ele começa a acreditar que o pai estava certo e que esse estilo de vida realmente é necessário para a existencia de uma sociedade, o que o fez se esforçar para tomar o manto do pai, mas apesar disso no fundo do seu coração ele ainda odeia tudo isso e preferia ter ido junto com as bombas.
-
-Possiveis nomes pro vilão Ooodial: Elias Boardman, Vladmir Revenant, Draco Lucrarez 
+Possiveis nomes pro vilão Ooodial: Elias Boardman,  
 
 ### Possíveis eventos:
 - ### Festa no pântano:
@@ -108,5 +100,26 @@ Possiveis nomes pro vilão Ooodial: Elias Boardman, Vladmir Revenant, Draco Lucr
 
 
 ## Arco 2: Femcel  lich
+
+### Vilões principais:
+* **Elsker Knyttet Til Fortiden (Vilã)**
+
+![Mocinhas](Cenário%20Nova%20Lich/Elsker%20Knyttet%20Til%20Fortiden%20(Vilã)/ElskerKnyttetTilFortiden.jpg)
+
+* **Hemmelig Kaerlighed (Mão direita)**
+
+![Mocinhas](Cenário%20Nova%20Lich/Hemmelig%20Kaerlighed%20(Mão%20direita)/HemmeligKaerlighed.jpg)
+
+### Outros membros da Party:
+
+* **Nanna Ofre Ren (Falecida)**
+
+![Mocinhas](Cenário%20Nova%20Lich/Nanna%20Ofre%20Ren%20(Falecida)/NannaOfreRen.jpg)
+
+* **Naturlig Kul Kriger**
+
+![Mocinhas](Cenário%20Nova%20Lich/Naturlig%20Kul%20Kriger/Naturlig%20Kul%20Kriger%201.jpg)
+
+
 
 
