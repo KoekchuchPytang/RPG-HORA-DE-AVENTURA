@@ -1,0 +1,21 @@
+Raça humana
+Guerreira
+
+Confusão 5
+Músculos 4
+Esperteza/Teimosia 3
+
+Inventario:
+Espada grande
+	Confusão +2
+Armadura de lobo
+	Músculos +1
+
+Proerzas:
+	Confusão:
+		 Letal e Treinado
+	Musculos:
+		Duro
+	Esperteza:
+		Olfato aguçado
+
